@@ -1,0 +1,1 @@
+segyo_wiki
